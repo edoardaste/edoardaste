@@ -7,7 +7,7 @@
 - 📫 How to reach me: stephanie.exd1997@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fact: I'm musician.
-- 
+
 ##
 
 <div align="center">
