@@ -3,7 +3,6 @@
 
 
 - 🔭 I’m currently working on back end
-- 🌱 I’m currently learning JAVA and AWS
 - 📫 How to reach me: stephanie.exd1997@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fact: I'm musician. 
